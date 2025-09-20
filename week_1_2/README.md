@@ -1,0 +1,1 @@
+Since I can't show my full work in gitlab, as I wasn't allowed to show it. I decided to show it this way.
